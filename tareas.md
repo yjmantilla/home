@@ -1,13 +1,14 @@
 # Tareas de la casa
 
 - Lavar las papeleras
-
 - Hacer almuerzo 
 - Hacer compras (Mamá + acompañante, no debe cargar peso)
 - Lavar compras (Yorguin)
 - Guardar compras (Dana)
-- Lavar ropa 
+- Lavar ropa
+- Subir y Bajar Ropa (cada quien baja su ropa, ingrid dice)
 - Mantener la casa ordenada
+- Mínimo cada 15 días lavar las cosas de la cama
 
 ## Basura
 Miercoles y Domingos en la noche
